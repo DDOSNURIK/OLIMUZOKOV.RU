@@ -1,1 +1,1 @@
-# OLIMUZOKOV.RU
+DDOSNURIK.github.io
